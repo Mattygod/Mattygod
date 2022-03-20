@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mattygod
+- 👀 I’m interested in Minecraft Java edition plugin coding and unity game creation.
+- 🌱 I’m currently learning Java, Linux and C#.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me my discord i can make you a texture pack or logo or code you something. MG4K#3740
